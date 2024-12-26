@@ -1,0 +1,1 @@
+# TugasFuzzy_MarchelinaAnnisaAssabrina_221011403197_New
